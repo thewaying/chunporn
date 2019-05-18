@@ -1,2 +1,3 @@
-# chunporn
-最新地址 https://chunporn.com 请使用 https:// 协议访问我们的网站
+# 欢迎来到 春色PORN，小妹接客啦！
+永久地址 http://www.chunporn.com
+
